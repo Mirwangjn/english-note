@@ -1,0 +1,43 @@
+### lesson 70
+
+#### expressions
+
+- `during the bullfight`
+  - (As soon as I saw the Matador, I waved to him.)
+- `be unaware of`
+  - (He is unaware of the danger.)
+- `be aware of`
+- `make that stupid remark`
+- `be sensitive about sth.`
+- `accept criticism`
+  - (It's difficult for everybody to accept criticism.)
+- `charge at sb. = attack`
+  - (冲向某人 带有侵略性)
+- `for your safety`
+- `be busy with sth.`
+  - (What have you been so busy with?)
+- `lead/drag sb. to safety`
+- `at the time`
+  - (相当于 at that time)
+- `catch sight of`
+  - (相当于 glimpse for a moment, suddenly notice)
+  - (I have been here for hours so that I can catch sight of her.)
+- `grow quiet/nervous/dark/old/adj.`
+  - (They grew nervous, for a man rushed towards a pretty girl.)
+- `get close to A`
+  - (It's not a good idea to get close to her when you look strange to her.)
+- `step aside`
+  - (1. 退到一边)
+  - (2. 让位，退位 resign from an important position of office)
+- `feel sorry for sb.`
+  - (觉得某人很可怜，值得同情，可悲)
+  - (She didn't pay any attention to you and I felt sorry for you.)
+  - (I was dismayed to see the mournful look on your face.)
+- `look on`
+  - (旁观)
+- `(get) out of the way`
+  - (语气好就是麻烦让一下；不好就是滚)
+- `once more`
+  - (Could you repeat that once more?)
+- `turn sb's attention to sb.`
+- `break into cheers`

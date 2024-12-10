@@ -1,0 +1,59 @@
+### lesson 58
+
+#### expressions
+
+- `it is/was a blessing that...`
+  - (It's a blessing that no one was killed in the accident.)
+- `what a blessing`
+  - (Great)
+- `God bless you`
+- `a blessing in disguise`
+  - (因祸得福 塞翁失马焉知非福)
+  - (This will work. You will see. I am certain It's a blessing in disguise)
+- `go to church`
+  - (做礼拜)
+- `go to the church`
+  - (去教堂)
+- `have a good/bad reputation`
+- `have a reputation for`
+  - (I have a reputation for honesty/evil 我是忠诚/邪恶的代名词)
+- `baggage claim`
+  - (取行李处)
+  - (I am at the baggage claim)
+  - (I am waiting at the baggage claim)
+- `claim sb's life`
+  - (夺走某人的生命)
+  - (You have already claimed my life.)
+- `source of income/information`
+  - (So you have no source of income)
+- `nothing is more annoying than sb./sth.`
+  - (Nothing is more annoying than the cursed tree.)
+- `increase risk/number/price`
+  - (If we increase the risks, we will have more income.)
+  - (Food prices have increased)
+- `your heart rate increases`
+- `plant tree/flower/...`
+  - (Plant a tree just like bringing up a person.)
+- `tree trunk`
+  - (树干)
+  - (The tree trunk was hollow inside.)
+- `be said to do sth. | it is said that...`
+  - (He is said to be the richest man in the world.)
+  - (It is said that he is the richest man in the world)
+- `emphasize sentence`
+  - (It is 强调部分 that 剩余部分)
+  - (My secretary sent the bill to Mr. Harding yesterday.)
+- `vacant post/position`
+  - (空缺的职位)
+- `a number of`
+  - (相当于several)
+- `the number of`
+  - (什么什么的数量)
+- `cut down`
+  - (If you cut down the tree, you will have a difficult time.)
+- `so far`
+  - (目前为止，相当于up to now)
+- `point out`
+  - (指出)
+  - (I have just pointed out that a lot of people were tired of their job.)
+- `be/fall in love with sb.`
